@@ -2,6 +2,6 @@
 - 👀 I’m interested in Data Science & Ai
 - 🌱 I’m currently learning Btech in CSE(Data science)
 - 💞️ I’m looking to collaborate on my Career growth
-- 📫 How to reach me @eharshitpandey on instgram/Twitter
+- 📫 Reach me @eharshitpandey on instgram/Twitter
 - 😄 Pronouns: he/him
 - ⚡ Quote: One Day or Day One...
